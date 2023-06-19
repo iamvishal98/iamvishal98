@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **chauhanvishal1998@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1MTEYubHd1McxgdapK82uGl8KFzQxAFG9/view](https://drive.google.com/file/d/1MTEYubHd1McxgdapK82uGl8KFzQxAFG9/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11gwkTGDbFj5DmZtc3lMWWvnsDoJs24yU/view?usp=drive_link](https://drive.google.com/file/d/11gwkTGDbFj5DmZtc3lMWWvnsDoJs24yU/view?usp=drive_link)
 
 - ⚡ Fun fact **Bad Singer :)**
 
